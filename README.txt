@@ -1,0 +1,6 @@
+Projet Git et GitHub...
+
+Passons aux choses sérieuses...
+
+
+OU PAS... Allons un peu de sérieux! ;)
